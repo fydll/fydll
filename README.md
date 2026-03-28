@@ -5,4 +5,4 @@
  FREE INT
 
 
- <a href="https://lalala.atabook.org/">atabook</a> ― <a href="https://guns.lol/fydl">gunshot</a>
+ <a href="https://lalala.atabook.org/">atabook</a> ― <a href="https://trevorjeans.straw.page/">strawpage</a>
