@@ -1,6 +1,6 @@
 <div align=center>
 
-she ― her &nbsp; .'- &nbsp; free int
+she ― her &nbsp; – &nbsp; free int
 
 &emsp;
 
